@@ -1,3 +1,1 @@
-doing crap for fun lol
-17
-
+An Economics and Finance student trying to find his dream job at mcdonalds
